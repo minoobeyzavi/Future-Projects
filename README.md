@@ -40,4 +40,8 @@ We know truth, not only by reason, but also by heart. Blaise Pascal
 
 To be or not to be. That is the not the question. The question is how? And the answer is love.
 
-We don’t need more women that are beautiful or women that are more beautiful. We don’t need women who expect more from men. We need better men. We need more beautiful women who don’t put out and those women need better men. It’s not about the AI it’s about the man. But those smart beautiful women didn’t have to become more manly than men to survive because they did have better men in their lives. I didn’t and now God is directing me towards an unknown path by telling me to continue to survive and someday it’s supposed to change.
+We don’t need more women that are beautiful or women that are more beautiful. We don’t need women who expect more from men. We need better men. We need more beautiful women who don’t put out and those women need better men. It’s not about the AI it’s about the man. But those smart beautiful women didn’t have to become more manly than men to survive because they did have better men in their lives. I didn’t and now God is directing me towards an unknown path by telling me to continue to survive and someday it’s supposed to change.</br>
+
+Positive vs ... popularity
+
+Best pilot in the galaxy
