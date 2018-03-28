@@ -44,4 +44,11 @@ We don’t need more women that are beautiful or women that are more beautiful. 
 
 Positive vs ... popularity
 
-Best pilot in the galaxy
+Best pilot in the galaxy</br>
+
+Hercules
+provide effective therapy and healing and empowering their lives through psychology, spirituality, literature, philosophy, music and photography.
+
+Paolo Maldini
+
+Be Brave, Simplify, Have Clarity and Integrity! Everything is Easy!
