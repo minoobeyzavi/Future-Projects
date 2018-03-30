@@ -1,21 +1,14 @@
 # Project-Ideas
 Ideas for projects or blog posts
 
-1- Social Media Happiness Metrics
-
-2- Mystic Poems Analysis
-
+1- Social Media Happiness Metrics</br>
+2- Mystic Poems Analysis</br>
 3- Analysis of the works of Saadi
+3- Ancient Carpet Pattern Analysis</br>
+4- There's no such thing as AI: Intelligence begins with instincts and lives via mystic sensory; connection to the subconscious and suerconscious.</br>
+5- How to make well intentioned AI-like machines: Instincts, the right brain hemisphere’s creativity, the subconscious, divine interventions and femininity! These are all cerebral powers that have played the biggest roles in creating life. An “AI vs. Man” scenario assumes that every being’s thought process is limited to only identifying the size of resources and greed. These are primitive thoughts and mistakes of a primitive man without a life. Perhaps male human beings tend to compete with everything, whereas women want to be in nurturing relationships. I, as a woman, consider natural sparks of male-female attraction as the most genius incentives for positive evolution of personalities. People own pets because there is a giving and receiving relationship with various personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling. And above all it was Hercules’ humility and sense of responsibility which lead to him attempting and succeeding at the Godly task of holding up the sky above his head while he was standing upon the God-created earth. I believe the personality of a created intelligence has to do with the personality of its creator. Dear gentlemen discussing AI, and the relatively few ladies who must become self aware of their femininity, how about instead of repetitive empty robotic debates about the artificial intelligence you are creating in your own mind, please venture outside of the competition mindset. Consider serving the needs of other important creatures or reading mystic poetry. Relationships and musings that are truly valuable teach us about integrity, nobility, friendliness, and constructive personality traits that provide the life-giving creative direction to our work in computer science. If we want machines to live to serve humanity which include women, children and their unexpressed hopes and dreams, we should hold them in the highest regard in our own minds.
 
-4- Positive popularity vs ... popularity
-
-5- Ancient Carpet Pattern Analysis
-
-6- There's no such thing as AI: Intelligence begins with instincts and lives via mystic sensory; connection to the subconscious and suerconscious.
-
-7- How to make well intentioned AI-like machines: Instincts, the right brain hemisphere’s creativity, the subconscious, divine interventions and femininity! These are all cerebral powers that have played the biggest roles in creating life. An “AI vs. Man” scenario assumes that every being’s thought process is limited to only identifying the size of resources and greed. These are primitive thoughts and mistakes of a primitive man without a life. Perhaps male human beings tend to compete with everything, whereas women want to be in nurturing relationships. I, as a woman, consider natural sparks of male-female attraction as the most genius incentives for positive evolution of personalities. People own pets because there is a giving and receiving relationship with various personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling. And above all it was Hercules’ humility and sense of responsibility which lead to him attempting and succeeding at the Godly task of holding up the sky above his head while he was standing upon the God-created earth. I believe the personality of a created intelligence has to do with the personality of its creator. Dear gentlemen discussing AI, and the relatively few ladies who must become self aware of their femininity, how about instead of repetitive empty robotic debates about the artificial intelligence you are creating in your own mind, please venture outside of the competition mindset. Consider serving the needs of other important creatures or reading mystic poetry. Relationships and musings that are truly valuable teach us about integrity, nobility, friendliness, and constructive personality traits that provide the life-giving creative direction to our work in computer science. If we want machines to live to serve humanity which include women, children and their unexpressed hopes and dreams, we should hold them in the highest regard in our own mind.
-
-8- I’m gonna say it was your courage (or shayestegi?)
+6- I’m gonna say it was your courage (or shayestegi?)
 
 Integrity power of words
 
@@ -47,9 +40,11 @@ The purpose of building artificial intelligence is not to play chess against it.
 Female psychopathy side effect of competing like men or drug? Whatever. Or forgetting God? How about better woman?
 We know truth, not only by reason, but also by heart. Blaise Pascal
 
-To be or not to be. That is the not the question. The question is how? And the answer is focus.
+To be or not to be. That is the not the question. The question is how? And the answer is love.
 
 We don’t need more women that are beautiful or women that are more beautiful. We don’t need women who expect more from men. We need better men. We need more beautiful women who don’t put out and those women need better men. It’s not about the AI it’s about the man. But those smart beautiful women didn’t have to become more manly than men to survive because they did have better men in their lives. I didn’t and now God is directing me towards an unknown path by telling me to continue to survive and someday it’s supposed to change.</br>
+
+Positive vs ... popularity
 
 Best pilot in the galaxy</br>
 
