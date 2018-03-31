@@ -10,6 +10,8 @@ Ideas for projects or blog posts
 
 6- I’m gonna say it was your courage (or shayestegi?)
 
+7- Every building in SF has empty floors, Uber for housing; We determine the price based on our predictions and create best matches between real estate and people.
+
 Integrity power of words
 
 My hairstyle is the least of your worries
