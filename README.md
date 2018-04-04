@@ -24,7 +24,7 @@ Ideas for projects or blog posts
 Female psychopathy side effect of competing like men or drug? Whatever. Or forgetting God? How about better woman?
 We know truth, not only by reason, but also by heart. Blaise Pascal
 
-To be or not to be. That is the not the question. The question is how? And the answer is focus.
+11- To be or not to be. That is the not the question. The question is how? The answer is focus.
 
 Positive vs ... popularity
 
