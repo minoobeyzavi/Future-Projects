@@ -26,10 +26,9 @@ We know truth, not only by reason, but also by heart. Blaise Pascal
 
 11- To be or not to be. That is the not the question. The question is how? The answer is focus.
 
-Positive vs ... popularity
+12- Positive vs ... popularity
 
 Hercules
-provide effective therapy and healing and empowering their lives through psychology, spirituality, literature, philosophy, music and photography.
 
 Paolo Maldini
 
