@@ -28,8 +28,8 @@ We know truth, not only by reason, but also by heart. Blaise Pascal
 
 12- Positive vs ... popularity
 
-Hercules
+13- Hercules
 
-Paolo Maldini
+14- Paolo Maldini
 
-Be Brave, Simplify, Have Clarity and Integrity! Everything is Easy!
+15- Simplify, Have Clarity and Integrity.
