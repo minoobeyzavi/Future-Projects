@@ -30,4 +30,4 @@ We know truth, not only by reason, but also by heart.
 
 14- Paolo Maldini
 
-15- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction.
+15- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
