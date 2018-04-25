@@ -22,12 +22,10 @@ Ideas for projects or blog posts
 10- The purpose of building artificial intelligence is not to play chess against it; nor is chess a game that requires intelligence. Remember the computer's deductive process is virtually instantenous. Spartacus wouldn’t have needed to revolt if he weren’t being enslaved to fight to the death. And all the slaves freed themselves to flock to him to live a happy life together. If AI is faster than human at playing the metaphorical chess of dealing with its creator, then it is probably faster than man to deduct on its own that fighting is not the way of life. Stop debating AI. Start having more integrity! Deus Ex machine is not needed where there is real God. Karma is real. AI would probably write a book called integrity. AI would have integrity.
 We know truth, not only by reason, but also by heart.
 
-11- To be or not to be. That is the not the question. The question is how? The answer is focus.
+11- Positive vs ... popularity
 
-12- Positive vs ... popularity
+12- Hercules
 
-13- Hercules
+13- Paolo Maldini
 
-14- Paolo Maldini
-
-15- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
+14- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
