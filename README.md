@@ -25,7 +25,3 @@ We know truth, not only by reason, but also by heart.
 11- Hercules
 
 12- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
-
-13- YouTube context analysis
-
-14- YouTube views analysis
