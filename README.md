@@ -23,3 +23,5 @@ We know truth, not only by reason, but also by heart.
 10- Hercules
 
 11- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
+
+12- Poetry is magic. Social media is a poetry playground.
