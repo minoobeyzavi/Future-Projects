@@ -11,14 +11,14 @@ Ideas for projects or blog posts
 
 5- Every building in SF has empty floors, Uber for housing; We determine the price based on our predictions and create best matches between real estate and people.
 
-6- Integrity power of words
+6- Integrity and the power of words
 
 7- Trees by water; Skies and the earth; For those who think, for the wise ones. Best pilot in the galaxy; My hairstyle is the least of your worries; Wrote BYB calendar & PARP Facebook; I always travel by balloon; Wrote funny paper about history of rock n roll and Beatles featuring love me do.
 
 8- The purpose of building artificial intelligence is not to play chess against it; nor is chess a game that requires intelligence. Remember the computer's deductive process is virtually instantenous. Spartacus wouldn’t have needed to revolt if he weren’t being enslaved to fight to the death. And all the slaves freed themselves to flock to him to live a happy life together. If AI is faster than human at playing the chess of dealing with its creator, then it is probably faster than man to deduct on its own that fighting is not the way of life. Stop debating AI. Start having more integrity! Deus Ex machine is not needed where there is real God. Karma is real. AI would probably write a book called integrity. AI would have integrity.
 We know truth, not only by reason, but also by heart.
 
-9- Positive vs ... popularity
+9- Positive popularity vs. non-positive popularity
 
 10- Hercules
 
