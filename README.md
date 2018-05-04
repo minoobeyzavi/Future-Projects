@@ -24,4 +24,8 @@ We know truth, not only by reason, but also by heart.
 
 11- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
 
-12- Poetry is magic. Social media is a poetry playground.
+12- Poetry is magic.
+
+13- Social media is a poetry playground.
+
+14- Is AI capable of instant sentiment analysis of poetry or comprehending improvised jokes?
