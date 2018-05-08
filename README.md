@@ -20,7 +20,7 @@ We know truth, not only by reason, but also by heart.
 
 9- Positive popularity vs. non-positive popularity
 
-10- Hercules
+10- Project Hercules
 
 11- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
 
