@@ -18,7 +18,7 @@ We know truth, not only by reason, but also by heart.
 
 8- Positive popularity vs. non-positive popularity
 
-9- Project Hercules
+9- Project Hercules: help everyone god wants us to learn
 
 10- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
 
