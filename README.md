@@ -1,5 +1,4 @@
-# Project-Ideas
-Ideas for projects or blog posts
+# Ideas for projects or articles
 
 1- Social Media Happiness Metrics
 
