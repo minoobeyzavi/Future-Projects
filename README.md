@@ -21,4 +21,4 @@ We know truth, not only by reason, but also by heart.
 
 10- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
 
-11- People think about creaating AI becuause they want to learn to have integrity in order to properly focus on the actual priorities.
+11- People think about creating AI becuause they want to learn to improve their own thinking habbits, behavior and personalities and have much more clarity and integrity themselves in order to properly focus on the actual priorities.
