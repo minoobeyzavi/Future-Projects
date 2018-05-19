@@ -2,7 +2,7 @@
 
 1- Social Media Happiness Metrics
 
-2- Analysis of the works of Saadi
+2- In-Depth Analysis of all the works of Saadi and their English translation.
 
 3- There's no such thing as AI; Intelligence begins with instincts and lives via subconscious sensory of the superconscious. The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power.
 
