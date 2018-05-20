@@ -18,7 +18,7 @@
 
 9- Project Hercules: Help everyone; Be the change you want to see in this world; God wants us to learn.
 
-10- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's subconscious and conscious.
+10- Propose idealistic plans to drastically improve something, only to create universal energetic waves of momentum in that direction, in people's consciousness. This is much bigger than "raising awareness". I can boldly declare what is obviously the right thing to do.
 
 11- People think about creating AI becuause they want to learn to improve their own thinking habbits, behavior and personalities and have much more clarity and integrity themselves in order to properly focus on the actual priorities.
 
