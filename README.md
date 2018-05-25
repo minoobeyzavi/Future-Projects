@@ -16,6 +16,6 @@
 
 8- Positive popularity vs. non-positive popularity
 
-9- Project Hercules: Help everyone; Be the change you want to see in this world; God wants us to learn.
+9- Project Hercules: Project "Do that catalyst buttefly effect thing that fixes/heals everyone/everything" => Be the change I want to see in this world => God wants us to learn.
 
 10- "There are signs in this for those who think."
