@@ -1,8 +1,8 @@
-# Ideas for projects or articles
+# Projects or articles
 
 1- Social Media Happiness Metrics
 
-2- Analysis of all the works of Saadi.
+2- NLP on poems of Saadi
 
 3- There's no such thing as AI; Intelligence begins with instincts and lives via subconscious sensory of the superconscious. The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power.
 
@@ -19,3 +19,5 @@
 9- Project Hercules: Project "Do that catalyst buttefly effect thing that fixes/heals everyone/everything" => Be the change I want to see in this world => God wants us to learn.
 
 10- "There are signs in this for those who think."
+
+11- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
