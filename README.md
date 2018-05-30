@@ -21,3 +21,5 @@
 10- "There are signs in this for those who think."
 
 11- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
+
+12- Story similarities
