@@ -4,7 +4,7 @@
 
 2- NLP on poems of Saadi
 
-3- There's no such thing as AI; Intelligence begins with instincts and lives via subconscious sensory of the superconscious. The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power.
+3- There's no such thing as AI; Intelligence begins with instincts and lives via subconscious sensory of the superconscious. The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power. AI is still a more complex version of a calculator which is not intelligence. Intelligence has to do with receiving information from the super conscious and creativity from the subconscious.
 
 4- How to make well intentioned AI-like machines: Instincts, the right brain hemisphere’s creativity, the subconscious, divine interventions and femininity! These are all cerebral powers that have played the biggest roles in creating life. An “AI vs. Man” scenario assumes that every being’s thought process is limited to only identifying the size of resources, greed and competition. These are primitive thoughts and mistakes of a primitive man without a life. Of course men tend to compete with everything, whereas women want to be in nurturing relationships. Perhapse natural sparks between men and women are the most genius incentives for positive evolution of personalities. People own pets because there is a giving and receiving relationship with various personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling. And above all it was Hercules’ humility and sense of responsibility which led him to attempting and succeeding at the Godly task of holding up the sky above his head while he was standing upon the God-created earth. I believe the personality of a created intelligence has to do with the personality of its creator. How about instead of repetitive empty robotic debates about "artificial intelligence", you venture outside of the competition mindset. Consider serving the needs of other important creatures or reading mystic poetry. Relationships and musings that are truly valuable teach us about integrity, nobility, friendliness, and constructive personality traits that provide the life-giving creative direction to our work in computer science. If we want machines to live to serve humanity which includes women, children and their feelings, hopes and dreams, we should hold them in the highest regard in our own minds. People think about creating AI becuause they want to learn to improve their own thinking habbits, behavior and personalities and have much more clarity and integrity themselves in order to properly focus on the actual priorities. The purpose of building artificial intelligence is not to play chess against it; nor is chess a game that requires intelligence. If AI is faster than man at playing the chess of dealing with its creator, then it is probably faster than man to deduct on its own that fighting is not the way of life. Stop debating AI. Start having more integrity! Deus Ex machinad is not needed where there is real God. Karma is real. AI would probably write a book called integrity. We know truth, not only by reason, but also by heart. AI's idea of wisdom, style of thinking and the basis of decision making is what it has beem received from a human's intelligence, not from the AI's own experience. Could then be referred to as any type of intelligence when it has no original basis of thought or is it merely a calculator?  
 
@@ -12,14 +12,12 @@
 
 6- Integrity and the power of words
 
-7- AI is still a more complex version of a calculator which is not intelligence. Intelligence has to do with receiving information from the super conscious and creativity from the subconscious.
+7- Positive popularity vs. non-positive popularity
 
-8- Positive popularity vs. non-positive popularity
+8- Project Hercules: Project "Do that catalyst buttefly effect thing that fixes/heals everyone/everything" => Be the change I want to see in this world => God wants us to learn.
 
-9- Project Hercules: Project "Do that catalyst buttefly effect thing that fixes/heals everyone/everything" => Be the change I want to see in this world => God wants us to learn.
+9- "There are signs in this for those who think."
 
-10- "There are signs in this for those who think."
+10- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-11- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
-
-12- Literal sentiment patterns in stories
+11- Literal sentiment patterns in stories
