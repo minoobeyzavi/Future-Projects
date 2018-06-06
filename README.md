@@ -10,7 +10,7 @@
 
 5- Every building in SF has empty floors, Uber for housing; We determine the price based on our predictions and create best matches between real estate and people.
 
-6- Integrity and the power of words
+6- Integrity, the power of words and literal sentiment patterns in stories
 
 7- Positive popularity vs. non-positive popularity
 
@@ -19,5 +19,3 @@
 9- "There are signs in this for those who think."
 
 10- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
-
-11- Literal sentiment patterns in stories
