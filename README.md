@@ -1,6 +1,6 @@
 # Future Projects
 
-1- Social Media Happiness Metrics
+1- Social Media Positivity Metrics
 
 2- NLP on poems of Saadi
 
