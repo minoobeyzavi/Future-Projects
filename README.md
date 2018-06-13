@@ -16,6 +16,4 @@
 
 8- Project Hercules: "Create the catalyst buttefly effect movement that fixes and heals everyone in regards to everything" => Be the change I want to see in the world => God wants us to learn.
 
-9- "There are signs in this for those who think."
-
-10- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
+9- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
