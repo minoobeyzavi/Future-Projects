@@ -1,4 +1,4 @@
-# Future Projects
+# Project Ideas
 
 1- Social Media Positivity Metrics
 
