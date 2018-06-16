@@ -10,7 +10,7 @@
 
 5- Integrity, the power of words and literal sentiment patterns in stories
 
-6- Positive popularity vs. non-positive popularity
+6- Positive popularity vs. non-positive popularity and emotional energy propagation on social media
 
 7- Project Hercules: "Create the catalyst buttefly effect movement that heals everyone and fixes everything" => Be the change I want to see in the world => God wants us to learn.
 
