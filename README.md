@@ -2,7 +2,7 @@
 
 1- Social Media Positivity Metrics
 
-2- NLP on poems of Saadi
+2- NLP on works of Saadi
 
 3- There's no such thing as AI; Intelligence begins with instincts and lives via subconscious sensory of the superconscious. The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power. AI is still a more complex version of a calculator which is not intelligence. Intelligence has to do with receiving information from the super conscious and creativity from the subconscious. You can say artifical apple but not artificial love, artificial truth or artificial swimming; Intelligence is not a material object; it is a spiritual property. Intelligence is not the ability to process information; it is the ability to identify reality in its infinite state. Ask the right question.
 
@@ -19,3 +19,5 @@
 9- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
 10- Female Vs. Male brain synapses
+
+11- Left-handed vs. right-handed brain synapses
