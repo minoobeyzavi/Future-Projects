@@ -14,7 +14,7 @@
 
 7- Positive popularity vs. non-positive popularity and emotional energy propagation on social media
 
-8- Project Hercules: "Create the catalyst buttefly effect movement that heals everyone and fixes everything" => Be the change I want to see in the world => God wants us to learn => Receive directions/Directly ask from God
+8- Project Hercules: "Create the catalyst buttefly effect movement that heals everyone and fixes everything" => Be the change I want to see in the world => God wants us to learn => Receive directions(the best thought process as well as the most valuable information)/Directly ask from God
 
 9- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
