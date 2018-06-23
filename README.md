@@ -21,3 +21,5 @@
 10- Female Vs. Male brain synapses
 
 11- Left-handed vs. right-handed brain synapses
+
+12- Brain synapses during prayer vs alpha, ... and delta waves
