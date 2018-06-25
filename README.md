@@ -25,3 +25,5 @@
 12- Brain synapses during prayer vs alpha, ... and delta waves
 
 13- Brain synapses in echoic memory
+
+14- Identify people with echoic memory based on tweets
