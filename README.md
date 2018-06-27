@@ -26,4 +26,4 @@
 
 13- Brain synapses in echoic memory
 
-14- Identify people with echoic memory based on tweets
+14- Identify people with echoic memory based on tweets (based on posted text, perhaps even image).
