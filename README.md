@@ -18,14 +18,12 @@
 
 9- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-10- Female Vs. Male brain synapses
+10- Left-handed vs. right-handed brain synapses
 
-11- Left-handed vs. right-handed brain synapses
+11- Brain synapses during prayer vs alpha, ... and delta waves
 
-12- Brain synapses during prayer vs alpha, ... and delta waves
+12- Brain synapses in echoic memory
 
-13- Brain synapses in echoic memory
+13- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
 
-14- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
-
-15- Left handed vs. right handed photos taken or liked
+14- Left handed vs. right handed photos taken or liked
