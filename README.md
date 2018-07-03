@@ -18,7 +18,7 @@
 
 9- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-10- Left-handed vs. right-handed brain synapses
+10- Left-handed vs. right-handed brain synapses and patterns
 
 11- Brain synapses during prayer vs alpha, ... and delta waves
 
