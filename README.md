@@ -20,7 +20,7 @@
 
 10- Left-handed vs. right-handed brain synapses and patterns
 
-11- Brain synapses during prayer vs alpha, ... and delta waves
+11- Brain synapses during prayer vs alpha, theta and delta brain waves
 
 12- Brain synapses in echoic memory
 
