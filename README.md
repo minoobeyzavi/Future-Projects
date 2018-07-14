@@ -27,5 +27,3 @@
 13- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
 
 14- Left handed vs. right handed photos taken or liked
-
-15- Grocery shopping patterns
