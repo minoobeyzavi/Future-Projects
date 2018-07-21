@@ -1,6 +1,6 @@
 # Project Ideas
 
-1- Social Media Positivity Metrics
+1- Social media positivity and happiness metrics
 
 2- NLP on works of Saadi
 
