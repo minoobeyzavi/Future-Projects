@@ -24,6 +24,4 @@
 
 12- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
 
-13- Left handed vs. right handed photos taken or liked
-
-14- Food industry data: Products, eat in, take out, delivery, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
+13- Food industry data: Products, eat in, take out, delivery, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
