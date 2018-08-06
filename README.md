@@ -16,12 +16,6 @@
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-9- Left-handed vs. right-handed brain synapses and patterns
+9- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
 
-10- Brain synapses during prayer vs alpha, theta and delta brain waves
-
-11- Brain synapses in echoic memory
-
-12- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
-
-13- Food industry data: Products, eat in, take out, delivery, cuisine patterns, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
+10- Food industry data: Products, eat in, take out, delivery, cuisine patterns, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
