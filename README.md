@@ -16,6 +16,4 @@
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-9- Identify people with echoic memory based on tweets (based on text, transcript, perhaps even photos taken or liked).
-
-10- Food industry data: Products, eat in, take out, delivery, cuisine patterns, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
+9- Food industry data: Products, eat in, take out, delivery, cuisine patterns, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
