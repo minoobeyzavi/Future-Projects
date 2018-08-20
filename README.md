@@ -1,6 +1,6 @@
 # Project Ideas
 
-1- Social media positivity and happiness metrics
+1- Positive psychology on twitter
 
 2- Practice human intellignce. Intelligence begins with instincts and lives via conscious and subconscious sensory of the superconscious, infinite intelligence, God. "The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power." -Tesla. AI is still a more complex version of a calculator. Intelligence has to do with receiving geniusly curated information and creativity. You can say artifical apple but not artificial love, artificial truth or artificial swimming; Intelligence is not a material object; it is a spiritual property. Intelligence is not the ability to process information; it is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Ask the right questions.
 
