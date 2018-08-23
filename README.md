@@ -19,5 +19,6 @@
 9- Food industry data: Products, eat in, take out, delivery, cuisine patterns, production, routes traveled between work/home and restaurant/coffee shop/supermarket/mobile food vending.
 
 10- Explain the reason in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
-<ul><li>https://web.stanford.edu/class/cs379c/class_messages_listing/content/Artificial_Neural_Network_Technology_Tutorials/KarparthyUNREASONABLY-EFFECTIVE-RNN-15.pdf</li>
-  <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li><ul>
+<ul>
+  <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
+  <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li><ul>
