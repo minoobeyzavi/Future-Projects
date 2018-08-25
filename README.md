@@ -12,7 +12,7 @@
 
 6- Positive popularity vs. non-positive popularity and propagation of sentiment on social media
 
-7- Project Hercules: "Create the catalyst buttefly effect movement that causes a universal social evolution" => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God
+7- The Project: "Create the catalyst buttefly effect movement that causes a universal social evolution" => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
