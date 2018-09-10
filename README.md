@@ -1,6 +1,7 @@
 # Project Ideas
 
 1- Positive psychology on twitter
+
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html
 Though not denying humanity’s flaws, the new tack of positive psychologists recommends focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying alcoholism, for example, positive psychologists might study the resilience of those who have managed a successful recovery—for example, through Alcoholics Anonymous. Instead of viewing religion as a delusion and a crutch, as did Freud, they might identify the mechanisms through which a spiritual practice like meditation enhances mental and physical health. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter.
 
