@@ -25,9 +25,9 @@ People want to learn to improve their own thinking habbits, behavior and persona
 
 6- Positive popularity vs. non-positive popularity and propagation of sentiment on social media
 
-7- My Project: 
+7- The Finished Project: 
 
-"Find a way to help everyone..." => Be the change I wish to see in the world => God wants us to learn => Ask/receive directions/miracles from God => The most valuable thing to do is to bare witness and to prove thhe existense of God; To learn about God and to teach others about God.
+"Find a way to help everyone..." => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God => The most valuable thing to do is to bare witness to the existense of God and miracles.
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
