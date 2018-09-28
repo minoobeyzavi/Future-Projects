@@ -27,7 +27,7 @@ People want to learn to improve their own thinking habbits, behavior and persona
 
 7- The Finished Project: 
 
-"Find a way to help everyone..." => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God => The most valuable thing to do is to bare witness to the existense of God and miracles.
+"Find a way to help everyone..." => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to the existense of God and miracles.
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
