@@ -25,7 +25,7 @@ People want to learn to improve their own thinking habbits, behavior and persona
 
 6- Positive popularity vs. non-positive popularity and propagation of sentiment on social media
 
-7- The Finished Project: 
+7- Learn to tell the story of this project:
 
 "Find a way to help everyone..." => Be the change I wish to see in the world => God wants us to learn => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to the existense of God and miracles.
 
