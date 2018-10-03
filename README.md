@@ -1,4 +1,4 @@
-# Project Ideas
+# Ideas
 
 1- Positive psychology on twitter
 
@@ -35,3 +35,6 @@ People want to learn to improve their own thinking habbits, behavior and persona
 <ul>
   <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li><ul>
+
+10- Neurotheology
+https://www.npr.org/templates/story/story.php?storyId=104310443
