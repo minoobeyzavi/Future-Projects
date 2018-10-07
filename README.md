@@ -27,7 +27,7 @@ People want to learn to improve their own thinking habbits, behavior and persona
 
 7- Learn to tell the story of this project:
 
-"Find a way to help everyone..." => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to the existense of God and miracles.
+"Find a way to help everyone..." => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to God and miracles shall never cease.
 
 8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
