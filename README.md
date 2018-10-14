@@ -27,19 +27,17 @@ People want to improve their own thinking habbits, behavior and personalities an
 
 5- The power of words, manifestation and sentiment patterns in stories
 
-6- Positive popularity vs. non-positive popularity and propagation of sentiment on social media
-
-7- Learn to tell the story of this project:
+6- Learn to tell the story of this project:
 
 "Find a way to help everyone..." => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to God and miracles shall never cease.
 
-8- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
+7- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-9- Explain the reason in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
+8- Explain the reason in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
 <ul>
   <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
 
-10- Neurotheology
+9- Neurotheology
 
 https://www.npr.org/templates/story/story.php?storyId=104310443
