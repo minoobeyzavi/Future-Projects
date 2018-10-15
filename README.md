@@ -41,3 +41,5 @@ People want to improve their own thinking habbits, behavior and personalities an
 9- Neurotheology
 
 https://www.npr.org/templates/story/story.php?storyId=104310443
+
+10- Positive vs non-positive popularity and propagation of sentiment
