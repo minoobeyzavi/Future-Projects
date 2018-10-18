@@ -2,7 +2,7 @@
 
 1- Positive psychology on twitter
 
-The new tack of positive psychologists recommends focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, for example, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter.
+Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter.
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 
 => Twinkle
