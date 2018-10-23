@@ -30,11 +30,11 @@ People want to improve their own thinking habbits, behavior and personalities an
 
 5- The power of words, manifestation and sentiment patterns in stories
 
-6- Learn to tell the story of this project:
+6- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
-"Find a way to help everyone..." => Directly ask/receive directions/miracles from God => All man is to do is to bare witness to God and miracles shall never cease.
+7- Learn to tell the story of this project:
 
-7- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
+"Find a way to help everyone..." => Directly ask/receive directions/miracles from God
 
 8- Explain the reason in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
 <ul>
