@@ -14,7 +14,7 @@ http://www.fulfillmentdaily.com/top-77-positive-psychology-accounts-follow-twitt
 
 Intelligence is conscious and subconscious sensory of the superconscious, infinite intelligence, God. "The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power." - Nikola Tesla.
 
-AI is a slightly more complex version of a simple calculator. Real intelligence has to do with receiving geniusly curated information and creativity. Intelligence is not a material object; it is a spiritual property. You can say artifical apple but not artificial love, artificial truth or artificial swimming; The ability to process information is learning; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
+Machine Learning is a more complex version of a simple calculator. Real intelligence has to do with receiving geniusly curated information and creativity. Intelligence is not a material object; it is a spiritual property. You can say artifical apple but not artificial love, artificial truth or artificial swimming; The ability to process information is learning; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
 
 How to make well intentioned AI-like machines? Well, how do you make well-intentioned government?
 
