@@ -45,9 +45,13 @@ If AI is faster than man at playing the chess game of dealing with its creator, 
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
 
 
-7- Neurotheology
+7- Neurotheology; Could the study of brain synapses during prayer provide ground breaking insights for deep learning? 
 
 https://www.npr.org/templates/story/story.php?storyId=104310443
 
 
 8- Positive vs non-positive popularity and propagation of sentiment
+
+9- UBA with Twitter data
+
+10- Search
