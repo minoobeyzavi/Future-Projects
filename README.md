@@ -53,5 +53,6 @@ https://www.npr.org/templates/story/story.php?storyId=104310443
 8- Positive vs non-positive popularity and propagation of sentiment
 
 9- UBA with Twitter data
+https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
 
 10- Search
