@@ -58,3 +58,6 @@ https://www.npr.org/templates/story/story.php?storyId=104310443
 https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
 
 10- Search
+
+11- NLP
+https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
