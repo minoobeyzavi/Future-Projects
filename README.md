@@ -8,6 +8,7 @@ https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 https://psb.stanford.edu/psb-online/proceedings/psb16/schwartz.pdf</br>
 http://www.fulfillmentdaily.com/top-77-positive-psychology-accounts-follow-twitter/</br>
 https://www.quora.com/What-is-the-Difference-between-NLP-neurolinguistic-programing-and-positive-psychology</br>
+https://en.wikipedia.org/wiki/Tuning_fork</br>
 https://cortex.twitter.com/</br>
 
 => <a href="https://github.com/minoobeyzavi/Twinkle">Twinkle</a>
