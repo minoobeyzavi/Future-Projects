@@ -62,7 +62,6 @@ https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
 
 11- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
+https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
 12- https://about.twitter.com/en_us/values/twitter-for-good.html
-
-13- https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
