@@ -30,6 +30,9 @@ We want to improve upon our thoughts, thinking habbits and behavior and most imp
 
 If AI is faster than man at playing the chess game of dealing with its creator, then it is probably faster than man to deduct on its own that fighting is not the way of life. Instead of debating AI, practice integrity! AI would probably write a book called "Integrity creates miracles" and define integrity as obediene of given directions, after God talks to human through intuition. We know truth, not only by reason, but also by heart. AI's idea of wisdom, style of thinking and the basis of decision making is what it has received from humanity's knowledge, not from the AI's own experience. Is it intelligence to know the answer to "2 + 2" or is it knowledge? Without instinctual tendencies, could it be referred to as any type of intelligence or is it merely a calculator? A search box in the internet of human knowledge as opposed to a receiver of God's infinite intelligence. The human neurology receives and processes data that is truly infinite; Through spirituslity and meditation we can access all of consciousness.
 
+How to make AI that won't require correction of cube rule labeling?
+https://cuberule.com
+
 
 3- The power of words, integrity, manifestation and sentiment patterns in stories
 
