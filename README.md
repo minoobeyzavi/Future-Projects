@@ -68,3 +68,5 @@ https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-st
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
 12- https://about.twitter.com/en_us/values/twitter-for-good.html
+
+13- Google search autocomplete
