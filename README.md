@@ -70,3 +70,5 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 12- https://about.twitter.com/en_us/values/twitter-for-good.html
 
 13- Google search autocomplete
+
+14- Transcedentalist movement - Ralph Waldo Emerson
