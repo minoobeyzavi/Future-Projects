@@ -71,4 +71,4 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 
 13- Google search autocomplete
 
-14- Transcedentalist movement - Ralph Waldo Emerson
+14- Transcedentalist Movement - Ralph Waldo Emerson
