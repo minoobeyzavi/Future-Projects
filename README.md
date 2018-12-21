@@ -45,7 +45,7 @@ https://cuberule.com
 "Find a way to help everyone..." => Directly ask/receive directions/miracles from God
 
 
-6- Explain the reason in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
+6- Explain the reason for effectiveness in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
 <ul>
   <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
