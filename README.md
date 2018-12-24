@@ -70,3 +70,6 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 12- https://about.twitter.com/en_us/values/twitter-for-good.html
 
 13- Google search autocomplete
+
+14- Use of "maybe" and "also" together sounds genius. What are the qualities of sentences that sound genius?</br>
+"You know that it takes time but maybe it also takes iterrations."
