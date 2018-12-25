@@ -73,3 +73,5 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 
 14- Use of "maybe" and "also" together sounds genius. What are the qualities of sentences that sound genius?</br>
 "You know that it takes time but maybe it also takes iterrations."
+
+15- Can autocorrect or text prediction have access to pop culture phrases or all of existing text? Might as well be all thoughts so just improve dictation. > Make it easier to give command to the computer as opposed to having it guess what we want or just making random interesting suggestions.
