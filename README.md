@@ -2,7 +2,7 @@
 
 1- Positive psychology on twitter - Propagation and growth of positivity
 
-Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into a self-help therapy group.
+Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy.
 
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 https://psb.stanford.edu/psb-online/proceedings/psb16/schwartz.pdf</br>
