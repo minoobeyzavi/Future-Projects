@@ -20,7 +20,7 @@ Intelligence is conscious and subconscious sensory of the superconscious, infini
 
 Machine Learning is very similar in nature to a handy calculator. Real intelligence has to do with receiving geniusly curated information from beyond this world. It's about receving visions. Intelligence is not a material quality; it is a spiritual property. It is an ability. You can say artifical apple but not artifical name, artificial love, artificial truth or artificial swimming; The ability to process information is learning; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
 
-How to make well intentioned AI-like machines? Well, how do you make well-intentioned government?
+How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of governmentn has to do with integrity and relationships.
 
 We have discovered all the good things in life and received ideas as blessings and miracles through sensitivity, creativity of the right brain hemisphere, human instincts from the subconscious and above all divine interventions from God! These are the resources that have played the biggest roles in creating life and evolution. An “AI vs. Man” scenario assumes that every being’s journey is limited to competition with others. People own pets because there is a giving and receiving relationship with various positive personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling.
 
