@@ -2,7 +2,7 @@
 
 1- Positive psychology on twitter - Propagation and growth of positivity
 
-Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive
+Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity.
 
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 https://psb.stanford.edu/psb-online/proceedings/psb16/schwartz.pdf</br>
@@ -16,9 +16,9 @@ https://cortex.twitter.com/</br>
 
 2- Practice human intellignce.
 
-Intelligence is conscious and subconscious sensory of the superconscious, infinite intelligence, God. "The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power." - Nikola Tesla.
+Intelligence is conscious and subconscious sensory of the superconscious, infinite intelligence, God. "The gift of mental power comes from God, divine being and if we concentrate our minds on that truth we become in tune with this great power." - Nikola Tesla
 
-Machine Learning is very similar in nature to a handy calculator. Real intelligence has to do with receiving geniusly curated information from beyond this world. It's about receving visions. Intelligence is not a material quality; it is a spiritual property. It is an ability. You can say artifical apple but not artifical name, artificial love, artificial truth or artificial swimming; The ability to process information is learning; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
+Machine Learning is similar in nature to a calculator. Real intelligence has to do with receiving geniusly curated information from beyond this world. It's about receving visions. Intelligence is not a material quality; it is a spiritual property. It is an ability. You can say artifical apple but not artifical name, artificial love, artificial truth or artificial swimming; The ability to process information is learning; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
 
 How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of governmentn has to do with integrity and relationships.
 
