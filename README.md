@@ -13,6 +13,8 @@ https://cortex.twitter.com/</br>
 
 => <a href="https://github.com/minoobeyzavi/Twinkle">Twinkle</a>
 
+"To laugh often and much; To win the respect of intelligent people and the affection of children; To earn the appreciation of honest critics and endure the betrayal of false friends; To appreciate beauty, to find the best in others; To leave the world a bit better, whether by a healthy child, a garden patch, or a redeemed social condition; To know even one life has breathed easier because you have lived. This is to have succeeded." - Ralph Waldo Emerson (1803 - 1882) American Essayist & Poet
+
 
 2- Practice human intellignce.
 
