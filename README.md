@@ -15,6 +15,7 @@ https://cortex.twitter.com/</br>
 
 "To laugh often and much; To win the respect of intelligent people and the affection of children; To earn the appreciation of honest critics and endure the betrayal of false friends; To appreciate beauty, to find the best in others; To leave the world a bit better, whether by a healthy child, a garden patch, or a redeemed social condition; To know even one life has breathed easier because you have lived. This is to have succeeded." - Ralph Waldo Emerson (1803 - 1882) American Essayist & Poet
 
+=> This is why we should have a positive psychology option on social media specially on Twitter.
 
 2- Practice human intellignce.
 
