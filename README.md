@@ -80,3 +80,5 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 15- Can autocorrect or text prediction have access to pop culture phrases or all of existing text? Might as well be all thoughts so just improve dictation. > Make it easier to give commands to the computer as opposed to having it guess what we want or just making random interesting suggestions. Is what their doing now a combination of both?
 
 16- What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
+
+17- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
