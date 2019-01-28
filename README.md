@@ -2,7 +2,7 @@
 
 1- Positive psychology on twitter - Propagation and growth of positivity
 
-Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity.
+Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity. Enthusuiasm
 
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 https://psb.stanford.edu/psb-online/proceedings/psb16/schwartz.pdf</br>
@@ -14,6 +14,8 @@ https://cortex.twitter.com/</br>
 => <a href="https://github.com/minoobeyzavi/Twinkle">Twinkle</a>
 
 "To laugh often and much; To win the respect of intelligent people and the affection of children; To earn the appreciation of honest critics and endure the betrayal of false friends; To appreciate beauty, to find the best in others; To leave the world a bit better, whether by a healthy child, a garden patch, or a redeemed social condition; To know even one life has breathed easier because you have lived. This is to have succeeded." - Ralph Waldo Emerson (1803 - 1882) American Essayist & Poet
+
+“The word “enthusiasm” comes from the Greek word “entheos” which means the God within. And the happiest, most interesting people are those who have found the secret of maintaining their enthusiasm, that God within.” - Earl Nightingale
 
 => This is why we should have a positive psychology option on social media specially on Twitter.
 
@@ -82,3 +84,5 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 16- What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
 
 17- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+
+18- Synchronization: https://www.woodwood.com/commodity/5257-wood-wood-mare-sweater
