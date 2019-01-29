@@ -85,4 +85,4 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 
 17- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 
-18- Synchronization: https://www.woodwood.com/commodity/5257-wood-wood-mare-sweater
+18- Synchronization: https://www.influenceatwork.com/books/pre-suasion/
