@@ -88,3 +88,5 @@ https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-ha
 
 18- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
+
+19- Cases of iterrations in nature
