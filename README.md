@@ -1,6 +1,6 @@
 # More Projects
 
-1- Positive psychology on twitter - Propagation and growth of positivity
+1- Positive psychology, propagation and growth of positivity on Twitter
 
 Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity.
 
