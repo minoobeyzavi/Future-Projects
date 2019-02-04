@@ -90,3 +90,5 @@ https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-ha
 https://www.influenceatwork.com/principles-of-persuasion/
 
 19- Cases of iterrations in nature
+
+20- Professions and success based on people's names
