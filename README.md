@@ -46,7 +46,7 @@ Instead of debating AI, we should practice integrity! Integrity creates miracles
 
 5- Learn to tell the story of this project:
 
-"Find a way to help everyone..." => Directly ask/receive directions/miracles from God
+"Find a way to help everyone..." => ... => "Directly ask/receive directions/miracles from God"
 
 
 6- Explain the reason for effectiveness in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
