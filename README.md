@@ -78,16 +78,14 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 14- Use of "maybe" and "also" together sounds genius. What are the qualities of sentences that sound genius?</br>
 "You know that it takes time but maybe it also takes iterrations."
 
-15- Can autocorrect or text prediction have access to pop culture phrases or all of existing text? Might as well be all thoughts so just improve dictation. > Make it easier to give commands to the computer as opposed to having it guess what we want or just making random interesting suggestions. Is what their doing now a combination of both?
+15- What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
 
-16- What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
-
-17- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+16- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-18- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
+17- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-19- Cases of iterrations in nature
+18- Cases of iterrations in nature
 
-20- Professions and success based on people's names
+19- Professions and success based on people's names
