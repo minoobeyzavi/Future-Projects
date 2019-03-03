@@ -83,6 +83,4 @@ https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-ha
 16- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-17- Cases of iterrations in nature
-
-18- Professions and success based on people's names
+17- Professions, success and personality based on people's names
