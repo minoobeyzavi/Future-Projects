@@ -84,3 +84,5 @@ https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-ha
 https://www.influenceatwork.com/principles-of-persuasion/
 
 17- Professions, success and personality based on people's names
+
+18- The Pareto Principle
