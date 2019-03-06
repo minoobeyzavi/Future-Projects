@@ -2,7 +2,7 @@
 
 1- Positive psychology, propagation and growth of positivity on social media
 
-Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity.
+Positive psychologists recommend focusing on people’s strengths and virtues as a point of departure. Rather than analyze the psychopathology underlying the problem, positive psychologists might study the resilience of those who have managed a successful recovery. Their lab experiments might seek to define not the conditions that induce depraved behavior, but those that foster generosity, courage, creativity, and laughter. Fireside chat with CEOs at DreamForce has turned into continuos group therapy. #MakeThisMoviePositive is one of many trends on Twitter where people actively focus on positivity. What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
 
 https://harvardmagazine.com/2007/01/the-science-of-happiness.html</br>
 https://psb.stanford.edu/psb-online/proceedings/psb16/schwartz.pdf</br>
@@ -75,14 +75,12 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 
 13- Google search autocomplete
 
-14- What words and sentence structures make us feel and think with more wisdom, patience and brilliance? "God", "Directions from God", ...
-
-15- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+14- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-16- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
+15- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-17- Professions, success and personality based on people's names
+16- Professions, success and personality based on people's names
 
-18- The Pareto Principle
+17- The Pareto Principle
