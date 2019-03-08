@@ -25,7 +25,7 @@ Our conscious and subconscious intelligence comes from the superconscious, infin
 
 Machine Learning is similar in nature to a calculator with finite inputs and programming. Real intelligence has to do with receiving geniusly curated information from beyond this world. It's about pre-programmed instincts as well as receving new visions. Intelligence is not a material quality; it is a spiritual property. You can say artifical apple but not artifical name, artificial love, artificial truth or artificial swimming; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
 
-How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of government has to do with the integrity of individuals and their relationships and integrity has everything to do with God's directions.
+How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of government has to do with the integrity of all individuals and their relationships, designed only by God, and integrity has everything to do with God's directions.
 
 For the project of creating AI-like machines to have good outcomes, the creators and thier work should carry good karma.
 
