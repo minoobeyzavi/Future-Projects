@@ -25,9 +25,9 @@ Our conscious and subconscious intelligence comes from the superconscious, infin
 
 Machine Learning is similar in nature to a calculator with finite inputs and programming. Real intelligence has to do with receiving geniusly curated information from beyond this world. It's about pre-programmed instincts as well as receving new visions. Intelligence is not a material quality; it is a spiritual property. You can say artifical apple but not artifical name, artificial love, artificial truth or artificial swimming; Intelligence is the ability to identify reality in its infinite state and to know what to focus on to continue on the right path. Asking the right questions is a matter of intuition; It comes from the heart. Knowing the answer is also a matter of intuition; It comes from God.
 
-How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of government has to do with the integrity of all individuals and their relationships, designed only by God, and integrity has everything to do with God's directions.
+How to make well intentioned AI-like machines? Well, how do you make well-intentioned government? Quailty of government has to do with the integrity of all individuals and their relationships. Integrity has everything to do with God's directions.
 
-For the project of creating AI-like machines to have good outcomes, the creators should have integrity.
+For a project to have good outcomes, the creators should have integrity.
 
 We discover, deduce and create all things through instincts. we receive ideas as blessings and miracles through sensitivity, creativity, human intuition from the subconscious and above all divine interventions from God! These are the resources that have played the biggest roles in creating life and evolution. An “AI vs. Man” scenario assumes that every being’s journey is to compete with others. People own pets because there is a giving and receiving relationship with various positive personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling.
 
