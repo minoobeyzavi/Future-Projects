@@ -39,7 +39,7 @@ We want to improve upon our thoughts, thinking habits and behavior and most impo
 
 God talks to human through signs and intuition. "We know truth, not only by reason, but also by heart." Sometimes we only know the truth by heart, and we don't know how or why, we just know it! AI's idea of wisdom, style of thinking and the basis of decision making is what it has received from humanity's knowledge, not from its own experience. Think about the logic of appropriateness. Without instinctual tendencies, could it be referred to as any type of intelligence or is it merely a calculator searching the internet of human knowledge as opposed to a receiver of God's infinite intelligence? We can make successful predictions because there are fractal patterns in reality but reality is infinite. The human neurology receives and processes data that is truly infinite; Through spirituality and meditation we can access all of consciousness.
 
-We have free will because we don’t know what’s going to happen and therefore we have intelligence to make faith-based choices. Does a machine learning program have free will? It doesn’t even have a will or desire. It just runs procedures. Can it develop desire? Desire for experiencing what? For imitating or even achieving a human experience? Or even an alien experience? The only thing we can rely on when it comes to the unknown is directions from God. It is also the way to all miracles.
+We have free will because we don’t know what’s going to happen and therefore we have intelligence to make faith-based choices. The only thing we can rely on when it comes to the unknown is directions from God. It is also the way to all miracles.
 
 3- The power of words, integrity, manifestation and sentiment patterns in stories
 
