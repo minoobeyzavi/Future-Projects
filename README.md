@@ -56,32 +56,27 @@ We have free will because we don’t know what’s going to happen and therefore
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
 
 
-7- Neurotheology; Could the study of brain synapses during prayer provide ground breaking insights for deep learning? 
+7- Positive vs non-positive popularity and propagation of sentiment
 
-https://www.npr.org/templates/story/story.php?storyId=104310443
-
-
-8- Positive vs non-positive popularity and propagation of sentiment
-
-9- UBA with Twitter data</br>
+8- UBA with Twitter data</br>
 https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
 
-10- Search
+9- Search
 
-11- NLP</br>
+10- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
-12- https://about.twitter.com/en_us/values/twitter-for-good.html
+11- https://about.twitter.com/en_us/values/twitter-for-good.html
 
-13- Google search autocomplete
+12- Google search autocomplete
 
-14- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+13- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-15- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
+14- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-16- Professions, success and personality based on individuals' names
+15- Professions, success and personality based on individuals' names
 
-17- The Pareto Principle
+16- The Pareto Principle
