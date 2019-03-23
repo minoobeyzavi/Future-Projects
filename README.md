@@ -45,39 +45,33 @@ We have free will because we don’t know what’s going to happen and therefore
 4- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
 
 
-5- Learn to tell the story of this project:
-
-"Find a way to help everyone..." => ... => "Directly ask/receive directions/miracles from God"
-Found it through a setup from God and realized everything is in God's hands who loves me infinitely. 
-
-
-6- Explain the reason for effectiveness in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
+5- Explain the reason for effectiveness in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
 <ul>
   <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
 
 
-7- Positive vs non-positive popularity and propagation of sentiment
+6- Positive vs non-positive popularity and propagation of sentiment
 
-8- UBA with Twitter data</br>
+7- UBA with Twitter data</br>
 https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
 
-9- Search
+8- Search
 
-10- NLP</br>
+9- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
-11- https://about.twitter.com/en_us/values/twitter-for-good.html
+10- https://about.twitter.com/en_us/values/twitter-for-good.html
 
-12- Google search autocomplete
+11- Google search autocomplete
 
-13- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+12- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-14- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
+13- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-15- Professions, success and personality based on individuals' names
+14- Professions, success and personality based on individuals' names
 
-16- The Pareto Principle
+15- The Pareto Principle
