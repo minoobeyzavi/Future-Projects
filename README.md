@@ -48,6 +48,7 @@ We have free will because we don’t know what’s going to happen and therefore
 5- Learn to tell the story of this project:
 
 "Find a way to help everyone..." => ... => "Directly ask/receive directions/miracles from God"
+Found it through a setup from God and realized everything is in God's hands who loves me infinitely. 
 
 
 6- Explain the reason for effectiveness in response to The Unreasonable Effectiveness of Recurrent Neural Networks.
