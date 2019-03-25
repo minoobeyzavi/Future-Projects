@@ -53,25 +53,22 @@ We have free will because we don’t know what’s going to happen and therefore
 
 6- Positive vs non-positive popularity and propagation of sentiment
 
-7- UBA with Twitter data</br>
-https://business.twitter.com/en/blog/7-useful-insights-Twitter-analytics.html
+7- Search
 
-8- Search
-
-9- NLP</br>
+8- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
-10- https://about.twitter.com/en_us/values/twitter-for-good.html
+9- https://about.twitter.com/en_us/values/twitter-for-good.html
 
-11- Google search autocomplete
+10- Google search autocomplete
 
-12- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+11- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-13- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
+12- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-14- Professions, success and personality based on individuals' names
+13- Professions, success and personality based on individuals' names
 
-15- The Pareto Principle
+14- The Pareto Principle
