@@ -69,6 +69,4 @@ https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-ha
 12- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
 https://www.influenceatwork.com/principles-of-persuasion/
 
-13- Professions, success and personality based on individuals' names
-
-14- The Pareto Principle
+13- The Pareto Principle
