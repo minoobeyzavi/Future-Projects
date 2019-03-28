@@ -66,7 +66,4 @@ https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-sho
 11- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-12- Synchronization: https://www.influenceatwork.com/books/pre-suasion/</br>
-https://www.influenceatwork.com/principles-of-persuasion/
-
-13- The Pareto Principle
+12- The Pareto Principle
