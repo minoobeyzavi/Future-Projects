@@ -53,17 +53,15 @@ We have free will because we don’t know what’s going to happen and therefore
 
 6- Positive vs non-positive popularity and propagation of sentiment
 
-7- Search
-
-8- NLP</br>
+7- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
-9- https://about.twitter.com/en_us/values/twitter-for-good.html
+8- https://about.twitter.com/en_us/values/twitter-for-good.html
 
-10- Google search autocomplete
+9- Google search autocomplete
 
-11- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+10- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-12- The Pareto Principle
+11- The Pareto Principle
