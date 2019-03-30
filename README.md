@@ -42,26 +42,23 @@ We have free will because we don’t know what’s going to happen and therefore
 3- The power of words, integrity, manifestation and sentiment patterns in stories
 
 
-4- <a href="https://en.wikipedia.org/wiki/Cross-language_information_retrieval">Cross-language information retrieval</a>
-
-
-5- Explain the reason for effectiveness in response to "The Unreasonable Effectiveness of Recurrent Neural Networks".
+4- Explain the reason for effectiveness in response to "The Unreasonable Effectiveness of Recurrent Neural Networks".
 <ul>
   <li>http://karpathy.github.io/2015/05/21/rnn-effectiveness/</li>
   <li>https://faculty.weatherhead.case.edu/Fred-Collopy/researchArticles/neuralnets.pdf</li></ul>
 
 
-6- Positive vs non-positive popularity and propagation of sentiment
+5- Positive vs non-positive popularity and propagation of sentiment
 
-7- NLP</br>
+6- NLP</br>
 https://blog.insightdatascience.com/how-to-solve-90-of-nlp-problems-a-step-by-step-guide-fda605278e4e
 https://hub.packtpub.com/3-natural-language-processing-models-every-engineer-should-know/
 
-8- https://about.twitter.com/en_us/values/twitter-for-good.html
+7- https://about.twitter.com/en_us/values/twitter-for-good.html
 
-9- Google search autocomplete
+8- Google search autocomplete
 
-10- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
+9- Puffer fish's masterpiece of love proves universal grammar: https://www.newenglishreview.org/Norman_Simms/Fish_and_Birds_in_Aesthetic_Play/
 https://www.medicaldaily.com/noam-chomskys-theory-universal-grammar-right-its-hardwired-our-brains-364236
 
-11- The Pareto Principle
+10- The Pareto Principle
