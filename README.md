@@ -31,7 +31,8 @@ We discover, deduce and create all things through instincts. we receive ideas as
 
 Hercules held the sky up above his head as he was standing upon earth; Maybe it was a sense of responsibility and courage that led to attempting and actualizing a godlike task while he was still relying on everything that was created by the God who created him. The personality of a created intelligence has to do with the personality of its creator. Instead of robotically debating AI, venture outside of the competition mindset. Consider serving the needs of others; Be courageous; Study mystic poetry. Caring relationships and directions from God teach us about integrity, nobility, friendliness, and other constructive human qualities that provide the life-giving creative direction to our work in computer science. If we want machines to live to serve humanity which includes women, children and their feelings, hopes and dreams, we should keep them in mind, literally in the highest regard.
 
-Set out to set the world straight and it will provide meaning that sustains us through difficult times. It will probably also provide insights and clarity in complex matters. CARE. ABOUT. OTHERS.
+"Set out to set the world straight and it will provide meaning that sustains you through difficult times." - Jordan Peterson
+CARE. ABOUT. OTHERS.
 
 We want to improve upon our thoughts, thinking habits and behavior and most importantly we want to have more clarity in order to have more integrity and focus on the true priorities in life. We want to feel conscious. We want to see intelligence to remember what it was like when we were thinking original thoughts and sensing the magic of exisetanse. Intuition comes from a close relationship with God. Instead of debating AI, we should practice integrity! Integrity creates miracles! Immediate attention to humanity is of absolute higher priority than creating AI. God has already given us intelligence! We should use it well!
 
