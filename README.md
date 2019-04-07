@@ -1,4 +1,4 @@
-# More Projects
+# Notes for project ideas
 
 1- Positive psychology, propagation and growth of positivity on social media
 
