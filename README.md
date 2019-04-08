@@ -27,12 +27,11 @@ How to make well intentioned AI-like machines? Well, how do you make well-intent
 
 For a project to have good outcomes, the creators should have integrity.
 
-We discover, deduce and create all things through instincts. we receive ideas as blessings and miracles through sensitivity, creativity, human intuition from the subconscious and above all divine interventions from God! These are the resources that have played the biggest roles in creating life and evolution. An “AI vs. Man” scenario assumes that every being’s journey is to compete with others. People own pets because there is a giving and receiving relationship with various positive personality traits at work. All parents and children want to live together, even go to sleep holding each other, as long as their lives are harmoniously fulfilling.
+We discover, deduce and create all things through instincts. we receive ideas as blessings and miracles through sensitivity, creativity, human intuition from the subconscious and above all divine interventions from God! These are the resources that have played the biggest roles in creating life and evolution.
 
 Hercules held the sky up above his head as he was standing upon earth; Maybe it was a sense of responsibility and courage that led to attempting and actualizing a godlike task while still relying on everything that's been created by the God who also created him. The personality of a created intelligence has to do with the personality of its creator. Caring relationships teach us about integrity, nobility, friendliness, and other constructive human qualities that provide the life-giving creative direction to our work in computer science. If we want machines to live to serve humanity which includes women and children, we should keep them in mind, literally in the highest regard.
 
 "Set out to set the world straight and it will provide meaning that sustains you through difficult times." - Jordan Peterson
-CARE. ABOUT. OTHERS.
 
 We want to improve upon our thoughts, thinking habits and behavior and most importantly we want to have more clarity in order to have more integrity and focus on the true priorities in life. We want to feel conscious. We want to see intelligence to remember what it was like when we were thinking original thoughts and sensing the magic of exisetanse. Intuition comes from a close relationship with God. Before working on creating AI, we should practice integrity! Integrity creates miracles! Immediate attention to humanity is of absolute higher priority than creating AI. God has already given us intelligence. We should use it well.
 
